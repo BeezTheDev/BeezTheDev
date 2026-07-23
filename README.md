@@ -1,3 +1,3 @@
 # Hey welcome to my github page! 
 
-**Hey, Im **Bee**
+Hey, Im **Bee**
