@@ -1,3 +1,1 @@
-# Hey welcome to my github page! 
-
-Hey, Im **Bee**
+# nick is gay lol
